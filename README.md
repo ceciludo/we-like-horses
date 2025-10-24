@@ -6,6 +6,6 @@
 -They are fast
 -They are majestic
 
-![Horse](https://racingclub.com/guides/different-types-of-racehorses/)
+![Horse](https://lh7-us.googleusercontent.com/f-zhn1fVem_NoW9ELOGQ21EZeHbdNLfKw3tfFblttScX3olF8qtHU-Xmc9JfAqueBmd-8c7DBXjwXJ4sRM8VJ1ZEBqXT7dQ-UztmVkWrDaOIfWSFzkua19JGC443paSjvYud9-tmv4_V-72GRA88TIY)
 
 [Learn more about horses](https://spca.bc.ca/news/fun-facts-about-horses/)
